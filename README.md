@@ -67,4 +67,4 @@ Institut Marianao | 2023 - 2025
 
 📧 vector2.053@gmail.com
 
-🔗 GitHub: https://github.com/YOUR_USERNAME
+🔗 Linkedin: www.linkedin.com/in/victorlarios12
